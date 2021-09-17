@@ -1,0 +1,4 @@
+- 👋 Olá, eu sou o @VituVitorio :D
+- 👀 Estou interessando em aprender. Sou novo no mercado de tecnologias e pretendo evoluir e me tornar um dos melhores.
+- 🌱 Atualmente cursando Engenharia da Computação e estudando na DIO(Digital Innovation One) compartilhando minhas experiências e aprendendo com profissionais.
+- 📫 Como me encontrar? segue meu email :) v.vitorio01ss@gmail.com
